@@ -1,4 +1,4 @@
-# 
+# Principal dexscreener sniper bot herramientas para Mac OS | Nuevo dexscreener sniper bot herramientas para PC Windows. Con notificaciones de alerta y análisis de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
